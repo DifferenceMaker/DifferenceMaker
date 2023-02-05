@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @DifferenceMaker
-- 👀 I’m interested in ... Girls and Technology
+- 👋 Hi, I’m @DifferenceMaker TOMS
+- 👀 I’m interested in ... :)
